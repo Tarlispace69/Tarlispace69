@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tarlispace69
 - 👀 I’m interested in your mom.
-- 🌱 I’m currently learning how tf to use ubuntu, c# and yeah.
+- 🌱 I’m currently learning how tf to use ubuntu, c#, python and yeah.
 - 💞️ I’m looking to collaborate on interesting things.
 - 📫 How to reach me 8m0kda0r@duck.com
 
